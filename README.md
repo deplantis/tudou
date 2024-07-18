@@ -1,2 +1,2 @@
-# all pictures , imagines from 土豆 , tudou , mr potato
-all pictures , imagines from 土豆 , tudou , mr potato
+# All pictures , images of 土豆 (tudou) , Mr. Potato.
+All pictures , images of 土豆 (tudou) , Mr. Potato.
